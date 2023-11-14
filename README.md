@@ -1,1 +1,1 @@
-# Freidoin.github.io
+# Freidolin.github.io
